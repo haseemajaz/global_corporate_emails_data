@@ -1,0 +1,15 @@
+ayman.toubasi@mobisoft.com
+jduffell@mobisoft.com
+info@mobisoft.com
+mbruce@mobisoft.com
+little.pony@mobisoft.com
+peitsa@mobisoft.com
+ironheel@mobisoft.com
+pcox@mobisoft.com
+jason@mobisoft.com
+tprice@mobisoft.com
+richard.ford@mobisoft.com
+rford@mobisoft.com
+shailesh.dhokale@mobisoft.com
+shailesh.dhoke@mobisoft.com
+jchen@mobisoft.com

@@ -1,0 +1,15 @@
+ma.syed@zellbury.com
+digital.zellbury@zellbury.com
+ecom@zellbury.com
+muhammad.owais@zellbury.com
+customer.care@zellbury.com
+kumail.haider@zellbury.com
+sampling@zellbury.com
+zellbury.mansehra@zellbury.com
+waqas.pervez@zellbury.com
+adnan.khan@zellbury.com
+muhammad.ammad@zellbury.com
+faran.farooqi@zellbury.com
+zellbury.sahiwal@zellbury.com
+manager.sahiwal@zellbury.com
+faisal.rafique@zellbury.com
